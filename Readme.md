@@ -1,4 +1,4 @@
-Helloooo!! I am Richa Agrawal. Welocme to my profile.
+Helloooo!! I am Richa Agrawal. Welcome to my profile.
 I am a finance professional and I love business analysis and analyzing data to derive insights and trends.
 I have gathered all my projects here.
 I have also been an entrepreneur for a short while managing overall strategy beginning from sourcing, brand positioning, supply chain,marketing and dispatch.                 
